@@ -1,2 +1,0 @@
-# downloader-by-nnnniellll
-ajananwhhwbwjwn
